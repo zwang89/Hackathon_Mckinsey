@@ -1,1 +1,1 @@
-# Hackathon_Mckinsey
+# Hackathon Mckinsey
